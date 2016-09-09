@@ -1,1 +1,2 @@
 # Hello-World
+hello,I am xiaokang,I am from Nanchang Hangkong University.now，i am in grade four,I am about to enter the community to participate in the work.but,i am very confused now.because i havn't study well in past three years.To be honest.I don't know what I've done in the last few years.I haven't been studying in mind.until to now.I still like this.oh,I hate myself for that,so I want to chance!gan ba die!
